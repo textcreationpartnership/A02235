@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-Bethel, or, A forme for families in which all sorts of both sexes, are soe squarde and framde [sic] 
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
